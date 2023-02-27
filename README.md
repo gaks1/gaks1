@@ -31,7 +31,7 @@ Here are some ideas to get you started:
 <br><br>
 
 - I am a student at Microverse.
-- I am open for new opportunities
+- I am open to new opportunities
 - I studied a diploma in business and Information Technology at Strathmore University.
 - I enjoy reading.
 <br>
